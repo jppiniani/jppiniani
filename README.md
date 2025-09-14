@@ -6,7 +6,7 @@ My name is João Pedro, and the following are a few things about me:
 
 🧠🏛️Beyond my interest in technology, I have a strong enthusiasm for medicine, psychology, and history.
 
-🎮🥊I am passionate about video games and have recently started learning boxing.
+🎮⚽ I am passionate about video games and soccer.
 
 🚀🌟What matters most to me in life is making it possible for everyone to explore their desires and realize their full potential.
 
