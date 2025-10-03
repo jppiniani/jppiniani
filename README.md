@@ -2,7 +2,7 @@ Hi there 👋🤗
 
 My name is João Pedro, and the following are a few things about me:
 
-📚👨🏼‍💻I am currently pursuing a degree in Information Systems Analysis and Development at the Federal Institute of São Paulo – Bragança Paulista campus.
+📚👨🏼‍💻I am currently pursuing a degree in Information Systems Analysis and Development at the Instituto Federal de São Paulo – Bragança Paulista campûs.
 
 🧠🏛️Beyond my interest in technology, I have a strong enthusiasm for medicine, psychology, and history.
 
